@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Xarox
+- 👀 I'm a youtuber
+- 💞️ I’m currently doing a web site
+- 📫 Sub to me PLSSSS
